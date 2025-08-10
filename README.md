@@ -6,7 +6,9 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/9eeebfda-1348-43ad-9f53-d7d5cec2e4f9" />
 
 
-ㅤㅤ^ྀི𓈒 ⸝⸝ 𓍼 is it everything and more than you were hoping forㅤ?ㅤ_show us something we ain't never seen before_ㅤ
+ㅤㅤ^ྀི𓈒 ⸝⸝ 𓍼 is it everything and more than you were hoping forㅤ?ㅤ
+    
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ_show us something we ain't never seen before_ㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤsmash your competition, babyㅤ
 
