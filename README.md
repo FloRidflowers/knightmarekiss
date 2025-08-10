@@ -1,9 +1,9 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𐔌 ⚔️  𐦯ㅤㅤ"ㅤsisterㅤ,ㅤyou've finally found me .ㅤ.ㅤ" ㅤㅤ🌹ㅤㅤ｡ৎ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𐔌 ⚔️  𐦯ㅤㅤ"ㅤsisterㅤ,ㅤyou've finally found me .ㅤ.ㅤ" ㅤㅤ🌹ㅤㅤ｡ৎ
 
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/9eeebfda-1348-43ad-9f53-d7d5cec2e4f9" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/9eeebfda-1348-43ad-9f53-d7d5cec2e4f9" />
 
 
 ㅤㅤ^ྀི𓈒 ⸝⸝ 𓍼 is it everything and more than you were hoping forㅤ?ㅤ_show us something we ain't never seen before_ㅤ
